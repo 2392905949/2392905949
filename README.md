@@ -1,16 +1,92 @@
-### Hi there 👋
+![](https://github.com/2392905949/2392905949/blob/main/tumblr_8d97263087c0737fc64bfca9e995d549_6372324e_1280.jpg)
 
-<!--
-**2392905949/2392905949** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+姓名：杨有文
 
-Here are some ideas to get you started:
+手机:17720815986[福建 福州]
+QQ:1214124044
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+账号:yyw1214124044
+密码:yyw520lmx
+邮箱:1214124044@qq.com
+性别:男
+地区:山西省临汾市翼城县唐兴镇泰山路189号附近
+关联:13191288853[山西 大同]、tyangxiuhong
+
+QQ绑定:1214124044
+绑定手机:17720815986[福建 福州]
+
+微博绑定:https://www.weibo.com/u/5705016603
+绑定手机:17720815986
+
+
+
+姓名：唐罗培
+
+账号:2392905949
+密码:tangluopei123
+
+账号:99fengling
+邮箱:2392905949@qq.com
+密码:tangluopei123
+地区:四川省成都市成华区二仙桥街道二仙桥北二路89号附近
+
+136910221@qq.com
+164151712@qq.com
+244930598@qq.com
+274182588@qq.com
+287436841@qq.com
+373103227@qq.com
+404956159@qq.com
+423136126@qq.com
+447403746@qq.com
+449247551@qq.com
+452153929@qq.com
+462744861@qq.com
+465282954@qq.com
+471694098@qq.com
+489540370@qq.com
+503018159@qq.com
+531089324@qq.com
+592090160@qq.com
+644892996@qq.com
+675936620@qq.com
+759931248@qq.com
+775418011@qq.com
+781328783@qq.com
+837226152@qq.com
+857701320@qq.com
+861388413@qq.com
+928379729@qq.com
+929203219@qq.com
+935692195@qq.com
+937430834@qq.com
+948237835@qq.com
+949329373@qq.com
+987663092@qq.com
+1005660739@qq.com
+1014646591@qq.com
+1120962569@qq.com
+1169779688@qq.com
+1172287010@qq.com
+1220395005@qq.com
+1281396190@qq.com
+1315749343@qq.com
+1347081525@qq.com
+1366549610@qq.com
+1401212099@qq.com
+1452275419@qq.com
+1490102418@qq.com
+1510199448@qq.com
+1535249551@qq.com
+1587693729@qq.com
+1594626790@qq.com
+1773535314@qq.com
+1781179846@qq.com
+1874310581@qq.com
+2228008317@qq.com
+2392873664@qq.com
+2987026601@qq.com
+2992077272@qq.com
+2998846439@qq.com
+1203309216@qq.com
+2821164964@qq.com
